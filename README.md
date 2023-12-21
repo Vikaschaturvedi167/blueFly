@@ -36,3 +36,8 @@ https://github.com/DevWebAbhi
 Jageshwar 
 
 https://github.com/Jageshwar2000
+<img width="960" alt="Screenshot 2023-12-21 081106" src="https://github.com/Vikaschaturvedi167/blueFly/assets/132068537/b29c5b26-27e0-4272-980f-3453650792e8">
+
+
+<img width="960" alt="Screenshot 2023-12-21 081132" src="https://github.com/Vikaschaturvedi167/blueFly/assets/132068537/aebd8d2b-4a59-457b-a906-60e72b897017">
+
